@@ -1,1 +1,1 @@
- weekend is going to be awesome
+weekend is going to be awesome
